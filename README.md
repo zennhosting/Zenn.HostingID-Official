@@ -25,7 +25,7 @@
 </p>
 <p align="center">
 </p>
-- My Name Zenn.HostingID Officially
+- My Name Zenn.HostingID Officiall
 </p>
 - I'm From Indonesia🇮🇩
 </p>
