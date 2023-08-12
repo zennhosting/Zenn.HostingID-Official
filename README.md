@@ -13,9 +13,9 @@
 </p>
 <h4><font size="2"><a href="https://youtube.com/@TheZynnn"><font color="red">SUBSCRIBE</font>
 </h4>
-<h4><font size="2"><a href="https://www.instagram.com/hikal_857/?hl=id"><font color="red">FOLLOW INSTAGRAM</font>
+<h4><font size="2"><a href="https://www.instagram.com/zennhostingid"><font color="red">FOLLOW INSTAGRAM</font>
 </h4>
-<h4><font size="2"><a href="https://t.me/haikal857"><font color="red">TELEGRAM</font>          
+<h4><font size="2"><a href="https://t.me/6285728472426"><font color="red">TELEGRAM</font>          
 </p>
 </p>
 <a href="https://trakteer.id/hw-mods-wa-haikal" target="_blank"><img id="wse-buttons-preview" src="https://cdn.trakteer.id/images/embed/trbtn-red-1.png" height="15" style="border:0px;height:25px;" alt="DONASI FOR ME :V"></a>
